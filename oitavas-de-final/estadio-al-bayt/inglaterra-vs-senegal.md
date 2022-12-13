@@ -1,2 +1,2 @@
-3-0
 Inglaterra vs Senegal
+3-0
